@@ -1,1 +1,0 @@
-# KnowledgeCheck1
